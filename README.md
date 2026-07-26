@@ -2,7 +2,8 @@
 
 <img width="2047" height="537" alt="1000182826" src="https://github.com/user-attachments/assets/8cd3f988-cba8-4ff6-8cd0-8896c3598dd7" />
 
-txt here LATER
+![](https://komarev.com/ghpvc/?username=DEBTHVERIFIED&style=flat-square&color=100061&label=STUDS)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=loveyalikeasister&pause=1000&color=73D1F7&center=true&width=550&height=40&lines=%22Let+this+be+a+lesson+to+not+mess+with+Eunoia%22;%22This+is+how+Britalians+fight!%22;%22She's+dressed+like+a+Pie+Hiker.%22;%22Usually+I+drink.+Today+I+fight%22)](https://git.io/typing-svg)
 
 <img width="800" height="578" alt="1000183046" src="https://github.com/user-attachments/assets/b01d2d20-b6a4-49d7-9712-1789d38739c1" />
 
