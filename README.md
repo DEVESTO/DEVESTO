@@ -6,6 +6,8 @@
 <img width="490" height="379" alt="1000183046" src="https://github.com/user-attachments/assets/b01d2d20-b6a4-49d7-9712-1789d38739c1" />
 <br>
 ${\text{\color{#C4E5FF}  ༷⠀⠀⠀ ۪ ׁ⠀⠀⠀e⠀⠀⠀ო𐐼⨍io𝓈o。⑅⠀⠀𓏼𓈒݁⠀⠀sเr𝒾u𝓈⠀⠀⠀𓈒݂݂ }}$
+<br> ${\text{\color{#33B7F5}  ⚞⠀𓏻  it𓈒 ⠀⠀♧⠀⠀⠀any  }}$⠀⠀ ![](https://komarev.com/ghpvc/?username=DEBTHVERIFIED&style=flat-square&color=E5F9FF&label=STUDS)⠀⠀ ${\text{\color{#0060AC}  เℓოb͟𝗳𓈒 }}$
+
 
 
   
