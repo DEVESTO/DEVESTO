@@ -6,3 +6,9 @@
 <sub>close the door and open up to me<br>wont you ever open up to me?</sub>
 
 <img width="735" height="505" alt="1000183042" src="https://github.com/user-attachments/assets/1c4154ae-95df-452c-946a-6fa9d7717f9e" />
+
+
+<br>
+
+
+<sub>₍⑅ᐢ..ᐢ₎⠀⠀⠀⠀⠀⠀⠀𓈒⠀⠀⠀⠀⠀⠀⠀mafi⠀⠀⠀ou⠀⠀⠀sirus<br>🐇⠀⠀⠀⠀⠀it.⠀⠀⠀⠀⠀any⠀⠀⠀⠀⠀ಎ</sub>
